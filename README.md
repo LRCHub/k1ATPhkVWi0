@@ -1,0 +1,68 @@
+# Billie Eilish – my strange addiction
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:00.14] No, Billy, I haven't done that dance since my wife died
+[00:08.00] There's a whole crowd of people out there
+[00:10.43] Who need to learn how to do the Scarn
+[00:28.93] 
+[00:13.20] Don't ask questions you don't wanna know
+[00:17.93] Learned my lesson way too long ago
+[00:22.34] To be talking to you, belladonna
+[00:25.05] Shoulda taken a break, not an Oxford comma
+[00:27.54] Take what I want when I wanna
+[00:30.22] And I want ya
+[00:36.72] 
+[00:32.27] Bad, bad news
+[00:34.29] One of us is gonna lose
+[00:36.76] I'm the powder, you're the fuse
+[00:39.89] Just add some friction
+[00:50.89] 
+[00:41.87] You are my strange addiction
+[00:46.75] You are my strange addiction
+[00:51.38] My doctors can't explain
+[00:53.65] My symptoms or my pain
+[00:56.12] But you are my strange addiction
+[01:12.12] 
+[01:01.13] I'm really, really sorry, I think I was just relieved
+[01:04.68] To see that Micheal Scarn got his confidence back
+[01:06.57] Yeah, Michael, the movie is amazing, though
+[01:07.84] It's like, one of the best movies I've ever seen in my life
+[01:37.34] 
+[01:10.67] Deadly fever, please don't ever break
+[01:15.25] Be my reliever 'cause I don't self-medicate
+[01:20.14] And it burns like a gin and I like it
+[01:22.50] Put your lips on my skin, and you might ignite it
+[01:25.27] Hurts, but I know how to hide it
+[01:27.91] Kinda like it
+[01:34.41] 
+[01:30.07] Bad, bad news
+[01:31.83] One of us is gonna lose
+[01:34.29] I'm the powder, you're the fuse
+[01:37.32] Just add some friction
+[01:48.32] 
+[01:39.64] You are my strange addiction
+[01:44.23] You are my strange addiction
+[01:48.92] My doctors can't explain
+[01:51.36] My symptoms or my pain
+[01:53.77] But you are my strange addiction
+[02:09.77] 
+[02:03.65] Bite my glass, set myself on fire
+[02:07.92] Can't you tell I'm a crass? Can't you tell I'm wired?
+[02:12.77] Tell me "nothing lasts," like I don't know
+[02:17.72] You could kiss my-, asking about my motto
+[02:38.22] 
+[02:23.19] You should enter in festivals, or carnivals
+[02:27.03] Thoughts? Pretty good reaction
+[02:29.03] It's pretty cool, right?
+[02:41.03] 
+[02:32.27] You are my strange addiction
+[02:37.30] You are my strange addiction
+[02:41.71] My doctors can't explain
+[02:44.01] My symptoms or my pain
+[02:46.52] But you are my strange addiction
+[03:02.52] 
+[02:55.53] Did you like it? Did you like that?
+[02:57.61] Um, which part?
+```
